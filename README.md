@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Aasma Siddiqui
 - 👀 I have excellent analytical skills and am able to work with large amounts of data without getting overwhelmed.
 - 🌱 I’m currently learning Data Science and Business Analytics
-- 📫 Reach me through https://www.linkedin.com/in/aasma-siddiqui-46559b195/
+- 📫 Reach me through email: aasmasiddiqui05@gmail.com
